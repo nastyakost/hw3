@@ -1,7 +1,7 @@
 # hw3
 **Ссылка на форму:**
 
-https://goo.gl/forms/lalrdvEWecfgtc5A2
+https://docs.google.com/forms/d/1u_hAKGOC9YfS7y_jcOixr_B5-1hRTIko5WJMEOte8o8/edit?usp=sharing
 
 **Ссылка на таблицу:**
 
